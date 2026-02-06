@@ -1,4 +1,4 @@
-Hi!! Hello!^^ Welcome to my github:] Do call me Milk or Siri. Blah blah blah I kin angel dust HEAVILY. [Also with Nine and elliot<3] Im from the Philippines! although i dont rlly speak it well... But i can understand a bit of it! I love Hazbin hotel, JnJ's obj shows, SMii7Y, TNM, AB and many more stuff heh The places i usually sit in is in the md/tadc spot right side of bakery near pond! I sit with my bf most of the time [I love him so muchh hhhh] Feel free to c+h!:D Im not really talkative or wtv, but sometimes i could so idfk Art crdts to the person who made the pfp ; xnicky
+Hi!! Hello!^^ Welcome to my github:] Do call me Milk or Siri. Blah blah blah... I kin angel dust HEAVILY. [Also with Nine and elliot<3] Im from the Philippines! although i dont rlly speak it well... But i can understand a bit of it! I love Hazbin hotel, JnJ's obj shows, SMii7Y, TNM, AB and many more stuff heh. The places i usually sit in is in the md/tadc spot right side of bakery near pond! I sit with my bf most of the time [I love him so muchh hhhh] Feel free to c+h!:D Im not really talkative or wtv, but sometimes i could so idfk. Also, art crdts to the person who made the pfp ; xnicky
 
 SULLYYYY😭😭😭 STORM THREW A CIG AT ME😭😭 cries and runs away
 
@@ -16,4 +16,3 @@ SULLYYYY😭😭😭 STORM THREW A CIG AT ME😭😭 cries and runs away
              Die of Death
              SMii7Y
              more upcoming👀
-          
