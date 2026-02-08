@@ -3,6 +3,7 @@ Hi!! Hello!^^ Welcome to my github:] Do call me Milk or Siri. Blah blah blah... 
 SULLYYYY😭😭😭 STORM THREW A CIG AT ME😭😭 cries and runs away
 
 Why do you keep on throwing stuff at me, storm😔
+![HazbinHotelSlappingGIF](https://github.com/user-attachments/assets/17b80278-b84b-4157-bc5d-d73eb0b9aa36)
 
 ꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶
 
