@@ -2,6 +2,8 @@ Hi!! Hello!^^ Welcome to my github:] Do call me Milk or Siri. Blah blah blah... 
 
 SULLYYYY😭😭😭 STORM THREW A CIG AT ME😭😭 cries and runs away
 
+Why do you keep on throwing stuff at me, storm😔
+
 ꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶ ๋꒷꒦꒷꒦︶꒷꒦︶
 
                                              fandoms yay
