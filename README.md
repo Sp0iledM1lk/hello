@@ -21,4 +21,6 @@ Why do you keep on throwing stuff at me, storm😔
              Forsaken [hate on me all you want idc]
              Die of Death
              SMii7Y
+             CRK
+             CROB
              more upcoming👀
